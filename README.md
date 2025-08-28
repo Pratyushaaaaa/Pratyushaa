@@ -36,7 +36,7 @@ Here are some of my projects (more coming soon!):
 
 ## 📫 Contact Me  
 - 📧 Email: pratyushapradhan8756@gmail.com  
-- 🔗 LinkedIn: [linkedin.com/in/yourprofile]
+- 🔗 LinkedIn: (https://www.linkedin.com/in/pratyusha-pradhan-24286630a?trk=contact-info)
 
 
 ---
